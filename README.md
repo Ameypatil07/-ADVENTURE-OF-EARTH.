@@ -78,7 +78,7 @@ In July 2011, Grylls had a special co-host, actor Jake Gyllenhaal in the season 
 
 In March 2012, Discovery Channel terminated its contract with Grylls due to contract disputes.[8] "Due to a continuing contractual dispute with Bear Grylls, Discovery has terminated all current productions with him," a network spokesperson told The Hollywood Reporter.
 
-Season	Episodes	Originally aired
+Seon	Episodes	Originally aired
 First aired	Last aired
 1	15	March 10, 2006	July 20, 2007
 2	13	November 9, 2007	June 6, 2008
